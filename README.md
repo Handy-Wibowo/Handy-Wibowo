@@ -3,7 +3,7 @@
 ### An University Student from Indonesia
 
 
-- 📫 How to reach me **micheljunior978@gmail.com** or go add me on discord username **arsaria**
+- 📫 How to reach me **micheljunior978@gmail.com** or go add me on discord username **"arsaria"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
