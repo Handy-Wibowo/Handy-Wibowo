@@ -2,8 +2,6 @@
 
 ### An University Student from Indonesia
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=Handy-Wibowo&label=Profile views&color=0e75b6&style=flat" alt="Handy-Wibowo" /> </p>
-
 - 📫 How to reach me: Email me at **micheljunior978@gmail.com** or go add me on discord with my username **"arsaria"**
 
 <h3 align="left">Connect with me:</h3>
